@@ -1,1 +1,0 @@
-# Revogação de Acesso
